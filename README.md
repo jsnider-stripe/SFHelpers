@@ -1,1 +1,1 @@
-# SFHelpers
+# “The irony of man's condition is that the deepest need is to be free of the anxiety of death and annihilation; but it is life itself which awakens it, and so we must shrink from being fully alive.” — Ernest Becker
